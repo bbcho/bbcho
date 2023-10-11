@@ -1,6 +1,6 @@
 Hello!
 
-I am currently the Fuels Analytics Manager at Imperial Oil, supporting both Imperial Oil and ExxonMobil across North and South America. 
+I am currently a Partner with Quantim Intelligence. 
 
 - 👋 Hi, I’m @bbcho
 - 👀 I’m interested in ...
